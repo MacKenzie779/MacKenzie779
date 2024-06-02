@@ -1,1 +1,1 @@
-![Typing SVG](https://readme-typing-svg.demolab.com/?lines=👋+Hi,+I’m+@MacKenzie779;👀+I’m+interested+in+IT-stuff;📫+How+to+reach+me?;As+MacKenzie779+on+Discord;or+[Email](mailto:MacKenzie779@proton.me))
+![Typing SVG](https://readme-typing-svg.demolab.com/?lines=👋+Hi,+I’m+@MacKenzie779;👀+I’m+interested+in+IT-stuff;)
